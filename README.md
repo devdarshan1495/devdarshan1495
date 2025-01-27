@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Devdarshan (@devdarshan1495)
 - 👀 I’m interested in Artificial Intelligence, neural learning pathways
 - 🌱 I’m currently learning Fundamentals of python
-- I’m looking to collaborate on not much rn, but in the future 👀
+- I’m looking to collaborate on not much rn, but we'll see ahead.
 - 📫 How to reach me https://www.linkedin.com/in/devdarshan-saravanan-a700682b8/
 - Pronouns: Bruh i'm a guy
 - Fun fact: 😂 nothing special here rn, but again in the future .
